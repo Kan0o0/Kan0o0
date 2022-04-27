@@ -1,2 +1,2 @@
-- Salut moi c'est KanOoO, je suis un développeur pour Honoris Life !
+- Salut moi c'est KanOoO, je suis un développeur pour 90's Life !
 - https://discord.gg/90life
